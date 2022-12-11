@@ -1,3 +1,11 @@
+# Yury Mikalayeu #
+
+## Contact information ##
+
+### Phone number: +375298651010 ### 
+### E-mail: nikolaevyura1997@gmail.com
+### Discord: @nikolaev_yura
+### GitHub: [yurakatovec](https://github.com/Yurakatovec/rsschool-cv.git)
 
 ## Briefly About Myself: ##
 
